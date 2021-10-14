@@ -1,3 +1,3 @@
 # The-second-Repo
 Hello Smit Lunagariya Here! 
-Yeah the 2nd time
+Yeah ,this is the 2nd time.
